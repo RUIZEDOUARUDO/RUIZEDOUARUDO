@@ -1,4 +1,4 @@
-Hi there 👋 Ruiz here!
+Hi there 👋 Luiz here!
 I'm just a front-end beginner.
 
 I am a dedicated, responsible, and communicative person who believes in the power of collaboration and continuous learning.
